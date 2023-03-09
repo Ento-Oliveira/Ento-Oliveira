@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Ento Oliveira 😁
+## Bem-vindo(a) ao perfil do Ento Oliveira 😝
 
  <div>
    <a href="https://github.com/Ento-Oliveira">
