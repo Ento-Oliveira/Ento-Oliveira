@@ -2,12 +2,6 @@
 
 円斗です。Nerd de carteirinha, DM por paixão e baterista nas horas vagas. Estou aqui para compartilhar conhecimentos e explorar novos mundos, seja nos dados, nas batidas ou nos bits da tecnologia.🎲🎶💻
 
-Ah, e se você curte música, dá uma conferida no som da minha banda! 🎤🎸 Estamos sempre criando algo novo e seria incrível contar com sua audiência. Clique no link abaixo para ouvir:   
-
-🎵 [Obscuryn](https://sndo.ffm.to/qow61om)
-
-Se gostar, não esquece de seguir e compartilhar com os amigos! Vamos espalhar boas vibrações por aí. 🚀✨
-
 ### 📊 Estatísticas
 
 <p>
